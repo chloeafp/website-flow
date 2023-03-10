@@ -5,4 +5,4 @@ This is a list of my favorite cheese:
 . Beaufort 
 . Conté 
 
-I prefer goat cheese tho 
+But I love all cheeses
